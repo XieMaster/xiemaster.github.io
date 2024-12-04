@@ -1,4 +1,4 @@
-[Hux Blog](https://huangxuan.me)
+[XieMaster](https://xiemaster.com)
 ================================
 
 > I never expected this to become popular.
